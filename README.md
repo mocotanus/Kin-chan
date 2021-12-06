@@ -6,6 +6,13 @@
 「369の扉」  
 [３６９の扉（書籍本） | 369event](https://369event.official.ec/items/54210153)
 
+### DoorOf369
+「369の扉」で使用したイラストです。
+
+### Kin-chan Sticker (369codama)
+[菌ちゃんLINEスタンプ](https://store.line.me/stickershop/product/17637736)で使用したイラストです。  
+
+
 ## What  is Kin-chan(369codama)?
 It is illustrations that anthropomorphizes bacteria and microorganisms as “Kin-chan” from the book “Door of 369” made by Ms. Ray Kaguya and Harmonymate.   
 
